@@ -1,0 +1,1 @@
+Tinha terminado antes de sexta! Porém, fui tirar umas dúvidas com a tutora Emyle e perguntei no que eu poderia melhorar na minha analise de dados. Então, eu corrigi de ontem para hoje, e agora sim minha EDA ta massa!
